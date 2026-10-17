@@ -8,6 +8,6 @@
 
 ㅤAlready acquainted with : Smaug, Bombur, Kíli, Beorn, Bilbo & the Moon .
 
-ㅤ^ O.K. with doubles except for Smaug :-) ,, specifically looking for others from the company .
+ㅤ^ O.K. with mediamate doubles except for Smaug :-) ,, specifically looking for others from the company .
 
 <a href="https://imgchest.com/p/9p4npw3mzyn"><img src="https://cdn.imgchest.com/files/84787fda55cf.png"></a>
