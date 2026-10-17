@@ -1,4 +1,4 @@
-<a href="https://imgchest.com/p/bp45wp2zg45"><img src="https://cdn.imgchest.com/files/c780fc6f365d.png"></a>
+<a href="https://imgchest.com/p/bp45wp2zg45"><img src="https://cdn.imgchest.com/files/c780fc6f365d.png" width="600" height="320"></a>
 
 
  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎Bofur◞ Flynt◞ Wolfgang
@@ -13,4 +13,4 @@
  
  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎Check out rentry for more.
 
- <a href="https://imgchest.com/p/qe4gaj2xb4j"><img src="https://cdn.imgchest.com/files/572d0593d011.png"></a>
+ <a href="https://imgchest.com/p/qe4gaj2xb4j"><img src="https://cdn.imgchest.com/files/572d0593d011.png" width="600" height="320"></a>
